@@ -1,2 +1,3 @@
-# Ean
-I decided to go over the app because I have been working on it right now
+# love
+love is the greatest exaggeration
+life without love is nothing
